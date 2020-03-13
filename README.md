@@ -1,0 +1,1 @@
+# parametri_i_tipove-danno
